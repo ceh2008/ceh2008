@@ -1,0 +1,10 @@
+-👋 ola, sou @ceh2008
+-📷 eu gosto de assistir series e filmes
+-🎼gosto de musicas
+-🐶 gosto de animais 
+-🍇 gosto de frutas
+-🏝 gosto de viajar
+-😊 sou uma otima amiga
+-⚽️ gosto de sportes 
+-🍔 gosto de comidas
+-🌞amo ver o por do sol
